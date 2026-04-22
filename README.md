@@ -1,3 +1,3 @@
-## produced gimmick
+## Words of wisdom.
 
-If nothing changes, nothing changes.
+There are two blessings which deceive many people: health and free time.
